@@ -1,2 +1,2 @@
-# Enhancing Healthcare Facilities IN Nairobi, Kenya
+# Enhancing Healthcare Facilities in Nairobi, Kenya
  
